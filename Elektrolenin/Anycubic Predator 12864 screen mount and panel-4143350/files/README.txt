@@ -1,0 +1,1 @@
+Anycubic Predator 12864 screen mount and panel by Elektrolenin on Thingiverse: https://www.thingiverse.com/thing:4143350
