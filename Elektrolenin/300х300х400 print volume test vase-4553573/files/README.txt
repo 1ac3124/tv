@@ -1,0 +1,1 @@
+300х300х400 print volume test vase by Elektrolenin on Thingiverse: https://www.thingiverse.com/thing:4553573
