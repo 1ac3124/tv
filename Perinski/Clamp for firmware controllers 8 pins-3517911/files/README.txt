@@ -1,0 +1,1 @@
+Clamp for firmware controllers 8 pins by Perinski on Thingiverse: https://www.thingiverse.com/thing:3517911
