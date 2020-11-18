@@ -1,0 +1,1 @@
+Clamp for vertical use. Photo and video shooting by Perinski on Thingiverse: https://www.thingiverse.com/thing:3084138
