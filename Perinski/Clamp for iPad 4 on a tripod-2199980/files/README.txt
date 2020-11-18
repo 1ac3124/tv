@@ -1,0 +1,1 @@
+Clamp for iPad 4 on a tripod by Perinski on Thingiverse: https://www.thingiverse.com/thing:2199980
