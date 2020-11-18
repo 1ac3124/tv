@@ -1,0 +1,1 @@
+Rotary table for painting by Perinski on Thingiverse: https://www.thingiverse.com/thing:3079231
