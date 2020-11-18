@@ -1,0 +1,1 @@
+Studio lighting for macro photography (update) by Perinski on Thingiverse: https://www.thingiverse.com/thing:2110500
