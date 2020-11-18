@@ -1,0 +1,3 @@
+Tevo Tornado Chimera Dual Extruder base module for K3D modular cooling system (https://www.thingiverse.com/thing:2937975) by Elektrolenin is licensed under the Creative Commons - Attribution license.
+http://creativecommons.org/licenses/by/3.0/
+
