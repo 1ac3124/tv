@@ -1,0 +1,1 @@
+Stand for Dial Indicator by Perinski on Thingiverse: https://www.thingiverse.com/thing:3808804
