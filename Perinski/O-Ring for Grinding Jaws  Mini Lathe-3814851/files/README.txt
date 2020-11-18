@@ -1,0 +1,1 @@
+O-Ring for Grinding Jaws / Mini Lathe by Perinski on Thingiverse: https://www.thingiverse.com/thing:3814851
