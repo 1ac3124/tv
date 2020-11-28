@@ -1,0 +1,1 @@
+{3D printed mold for planter %!s(bool=true)} by {chappel %!s(bool=true)} on Thingiverse: https://www.thingiverse.com/thing:4089572
